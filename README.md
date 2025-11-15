@@ -7,7 +7,8 @@
 ## 🔗 Où me trouver
 
 - 📫 Me contacter : **tristancassin20@gmail.com**
-- 💬 Discord : **tristancassin.31**  
+- 💬 Discord : **tristancassin.31**
+- Modrinth : **[Modrinth](https://modrinth.com/user/MidacoYT)**
 
 ---
 
